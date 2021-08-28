@@ -1,6 +1,9 @@
-- 👋 Hi, I’m @elaine-xff
-- 👀 I’m a math student from the Chinese University of Hong Kong.
+- 👋 Hi, I’m Xinfang Elaine, ZHANG @elaine-xff
+- 👀 The Chinese University of Hong Kong, Hong Kong
+- 👀 United College
+- 👻 Mathematics | Computer Science 23'
 - 🌱 A piece of blank A4 paper on the exploring road.
+- 🌱 LOVE A TREE
 - 📫 How to reach me？
     🌟email: elainezxff@gmail.com
     🌟Instagram: fy__xff
